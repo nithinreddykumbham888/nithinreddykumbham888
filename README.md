@@ -4,7 +4,7 @@
 - 🎓 Masters Degree(2022)- 🇺🇸, Bachelors Degree(2019)- 🇮🇳
 - 😎 Love traveling, playing games
 - 💬 Ask me for suggestions and ideas are most welcomed
-- 📫 Can reach me through nithinreddykumbham@gmail.com
+- 📫 Can reach me at nithinreddykumbham@gmail.com
 <!--
 **nithinreddykumbham888/nithinreddykumbham888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
