@@ -1,7 +1,6 @@
 ### Hi you just landed to Nithin GitHub Profile 👋
 - 💼 I’m currently working as a Software Engineer
 - 🧑‍💻 I'm skilled in Java, JavaScript, React, Angular, AWS
-- 🎓 Masters Degree(2022)- 🇺🇸, Bachelors Degree(2019)- 🇮🇳
 - 😎 Love traveling, playing games
 - 💬 Ask me for suggestions and ideas are most welcomed
 - 📫 Can reach me at nithinreddykumbham@gmail.com
